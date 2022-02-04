@@ -1,0 +1,1 @@
+I'll always love the art museum, but the truth is I wasn't paid enough or valued enough to keep sticking around. I want to have fun and travel, learn new things! The museum just wasn't the right place to do those things. 
